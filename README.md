@@ -7,7 +7,7 @@ yo , exploit unfair but we need it to get more fun , there is a few things on me
                                  ┏ (゜ω゜)=☞   PitchHub  ☜(ﾟヮﾟ☜)
 
 
-yt channel 🔽🔽🔽
+yt channel ▶▶▶
 https://www.youtube.com/channel/UCyPwttNCvLm3f9Ilz_M569g
 i show only script i've done and maybe i will show library with the how 2 use i've done (for the moment kavo , turtle and maybe wally)
 
