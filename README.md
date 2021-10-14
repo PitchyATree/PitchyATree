@@ -2,7 +2,8 @@
 yo , exploit unfair but we need it to get more fun , there is a few things on me repositories , exploit library is a few library to make ui faster , e is a repositorie of script and myscript to 🙄🙄
 
 
-https://media.discordapp.net/attachments/836237636791828480/864117891493789726/BcAx9g.gif
+![image](https://user-images.githubusercontent.com/87212166/137377451-4ddceda9-39a1-470b-9e6e-0cec87d80f1b.png)
+
 
 
 ![image](https://user-images.githubusercontent.com/87212166/134063241-123f4d5a-7dac-41e2-9687-974d73c41d6f.png)
