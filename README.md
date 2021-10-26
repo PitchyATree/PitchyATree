@@ -1,4 +1,6 @@
 ![image](https://user-images.githubusercontent.com/87212166/134061696-8f301274-349d-4a5e-80bf-492f5dcd921a.png)
+![image](https://user-images.githubusercontent.com/87212166/138937890-48a360e0-f497-4537-8edc-2b29a49b3f19.png)
+
 yo , exploit unfair but we need it to get more fun , there is a few things on me repositories , exploit library is a few library to make ui faster , e is a repositorie of script and myscript to 🙄🙄
 
 
@@ -20,5 +22,5 @@ i show only script i've done and maybe i will show library with the how 2 use i'
 ┏ (゜ω゜)=☞   PitchHub  ☜(ﾟヮﾟ☜)
 
 ![image](https://user-images.githubusercontent.com/87212166/138928812-5f781dbe-0edb-4645-8eb1-076c4440c3fb.png)
-![image](https://user-images.githubusercontent.com/87212166/138937835-ddaf0022-69c2-4911-8951-fd7375aea4fe.png)
+
 
